@@ -1,1 +1,1 @@
-# rsschool-cv
+https://verazanoza.github.io/rsschool-cv/cv
